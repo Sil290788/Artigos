@@ -1,3 +1,3 @@
 # Artigos
 ***
-Gostaria de compartilhar aqui alguns textos de minha autoria. 
+Gostaria de compartilhar alguns textos de minha autoria. 
